@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @simranymcmb
 - 👀 I’m interested in CRSPR,medical coding,AI,machine learning
 - 🌱 I’m currently learning medicine
-- 💞️ I’m looking to collaborate on CRISPR researchers
+- 💞️ I am a R programmee
 - 📫 email-ymcmbsimran66@gmail.com </br>
 INSTAGRAM/twitter/CH - simranymcmb
 
